@@ -6,7 +6,7 @@ I’m a detail-oriented professional with a strong background in **virtual assis
 
 I began my professional journey as a **Customer Service Representative (Dec 2019 – Jun 2021)** where I honed my communication, multitasking, and problem-solving skills. During this time, I also worked **part-time as a Social Media Sales Associate**, which involved creating attractive product visuals, managing a trustworthy social media presence, prospecting leads, initiating client conversations, and closing sales — all done remotely and independently.
 
-Currently, I work at **Foundever** as a **Technical Support, Sales Support, and Customer Service Representative**, assisting clients with troubleshooting, product concerns, and internal sales coordination. Alongside this, I also worked **part-time as a Real Estate Agent (June 2024 – May 2025)**, focusing on online lead generation, property listing management, and client communications — all of which are highly relevant to VA and sales roles.
+Currently, I work at **Foundever** as a **Technical Support, Sales Support, and Customer Service Representative**, assisting clients with troubleshooting, product concerns, and internal sales coordination. Alongside this, I also worked **part-time as a Real Estate Agent (June 2024 – June 2025)**, focusing on online lead generation, property listing management, and client communications — all of which are highly relevant to VA and sales roles.
 
 In addition, I serve as the **auditor in our church**, where I create and maintain **financial reports using Microsoft Excel**, demonstrating my skills in organization, attention to detail, and working with spreadsheets and documentation.
 
