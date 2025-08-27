@@ -39,8 +39,7 @@ Hi, I’m **Ralph Ryan Lizada**, a multi-skilled professional with experience in
 
 ## 📫 Contact Me
 
-- **Email:** [your-email@example.com]  
-- **LinkedIn:** [Your LinkedIn Profile]  
-- **GitHub:** [Your GitHub Profile]
+- **Email:** [ryanlizada@gmail.com]  
+- **LinkedIn:** [https://www.linkedin.com/in/ralph-ryan-lizada-8692632b1/]  
 
 ---
